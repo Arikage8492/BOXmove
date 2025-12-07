@@ -1,0 +1,1 @@
+Dont read me, its a lazy guy's way of learning what did you expect, maybe when there is some PC bricking instance will i put something here. Be happy there is non. Maybe I'll make a readme in the future. Till then you're stuck with this.
